@@ -21,11 +21,11 @@
 
 - Objectif 1 (Maquette/ Adrien, Astrid) :
 
- Maquette sous forme de flyer et de livret. Rassemblement du contenu presque fini (quelques informations manquantes à demander à Mr Teguia).
- Date butoire pour la version flyer: avant journée portes ouvertes.
- Calendrier prévisionnel du groupe: finalisation des versions flyer et livret pendant la pause pédagogique de décembre. 
- En attente du nouveau logo qui doit être transmis par le groupe site web.
- Refonte du document de recommandations pré-rentrée si le planning le permet. 
+ Maquette sous forme de flyer et de livret. Rassemblement du contenu presque fini (quelques informations manquantes à demander à Mr Teguia).<br/>
+ Date butoire pour la version flyer: avant journée portes ouvertes.<br/>
+ Calendrier prévisionnel du groupe: finalisation des versions flyer et livret pendant la pause pédagogique de décembre.<br/> 
+ En attente du nouveau logo qui doit être transmis par le groupe site web.<br/>
+ Refonte du document de recommandations pré-rentrée si le planning le permet.<br/> 
 
 - Objectif 2 (Les évolutions possibles du Master 2 CCI/ Nabil, Samir) :
 
